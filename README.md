@@ -1,1 +1,1 @@
-# cms_jims
+# Jim Syyap & Company, Conversion Rate Optimisation
